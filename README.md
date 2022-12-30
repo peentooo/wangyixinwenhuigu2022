@@ -14,6 +14,8 @@
 
 他只是把今年发生的事情说了一遍
 
+以下补档只有exe文件，需更改后缀为mp4方可观看
+
 阿里云盘补档：https://www.aliyundrive.com/s/kzCbLsD4pUC
 提取码: vb58
 
