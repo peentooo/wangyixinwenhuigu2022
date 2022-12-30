@@ -2,7 +2,7 @@
 
 视频下载（1080p）：https://github.com/peentooo/wangyixinwenhuigu2022/releases/tag/video 选第一个
 
-百度网盘：https://pan.baidu.com/s/1HBisFiLVIcLBnuSF9wjk9w?pwd=peen 
+百度网盘（已失效，不愧是你）：https://pan.baidu.com/s/1HBisFiLVIcLBnuSF9wjk9w?pwd=peen 
 提取码：peen
 
 阿里云盘：https://www.aliyundrive.com/s/q2X7qoMtBbN
